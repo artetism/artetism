@@ -3,7 +3,7 @@
 $${\color{#efecec} ⌒✧⌒}$$
 $${\color{#eca0a0} arte}$$
  
-
+bro im going insane ANY TIME I ADD MORE TEXT IT CHANGES ALIGNMENT OR ADDS OR REMOVES A RANDOM LINEBREAK IM GOING INSANEEEEE
  
 
  
