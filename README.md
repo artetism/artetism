@@ -1,9 +1,8 @@
 <img align="left" width="300" height="300" src="https://github.com/user-attachments/assets/37062334-628b-47d7-b951-3eafb17e21d3"> 
 
-$${\color{#efecec} ⌒✧⌒}$$
-$${\color{#eca0a0} arte}$$
+${\color{#efecec}{\textsf ⌒✧⌒}} \color{#eca0a0}{\textsf{arte}} \color{#efecec}{\textsf{it/its}} \color{#a465ab}{\textsf{16}}$
  
-bro im going insane ANY TIME I ADD MORE TEXT IT CHANGES ALIGNMENT OR ADDS OR REMOVES A RANDOM LINEBREAK IM GOING INSANEEEEE WHY IS THE FONT DIFFERENT FROM NORMAL TEXT WHAT THE HELL 😭😭😭😭😭😭😭😭
+
  
 
  
