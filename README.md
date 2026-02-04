@@ -1,9 +1,17 @@
 <img align="left" width="300" height="300" src="https://github.com/user-attachments/assets/37062334-628b-47d7-b951-3eafb17e21d3"> 
 
-${\color{#efecec}{\textsf ⌒✧⌒}} \color{#eca0a0}{\textsf{arte}} \color{#efecec}{\textsf{it / its}} \color{#a465ab}{\textsf{16}}$
- 
 
  
+
+
+
+ 
+
+
+${\color{#efecec}{\textsf ⌒✧⌒}} \color{#eca0a0}{\textsf{arte}} \color{#efecec}{\textsf{it / its}} \color{#a465ab}{\textsf{16}}$\
+${\color{#efecec}{\textsf ⊹}} \color{#a465ab}{\textsf{➸}} \color{#efecec}{\textsf{autistic}} \color{#eca0a0}{\textsf{himejoshi}} \color{#efecec}{\textsf{thing}}$\
+✿ lesbian aroace agender ⚢\
+   i ♡ my special interests
 
  
 
