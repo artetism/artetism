@@ -28,5 +28,5 @@ $ {\color{#efecec}{\textsf i}} \color{#eca0a0}{\textsf{♡}} \color{#efece
  \
  \
  \
-                not super active... idk much abt like pt etiquette or whatevr 
+                not super active... i dont understand alot of pt vocab!!!
 
