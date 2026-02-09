@@ -28,6 +28,6 @@ $ {\color{#efecec}{\textsf i}} \color{#eca0a0}{\textsf{♡}} \color{#efece
  \
  \
  \
-                not super active... i dont understand alot of pt vocab!!!\
-                also i am a huge lonepi fan.. alot of my cosplays are of her [ocs](https://x.com/9loneko/status/1454056415153192963)
+               not super active... i dont understand alot of pt vocab!!!\
+              also i am a huge lonepi fan.. alot of my cosplays are of her [ocs](https://x.com/9loneko/status/1454056415153192963)
 
