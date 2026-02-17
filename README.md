@@ -30,4 +30,4 @@ $ {\color{#efecec}{\textsf i}} \color{#eca0a0}{\textsf{♡}} \color{#efece
  \
                not super active... i dont understand alot of pt vocab!!!\
               also i am a huge lonepi fan.. alot of my cosplays are of her [ocs](https://pbs.twimg.com/profile_banners/1272193349554810887/1770654442/1080x360)
-              cant link in colored text but refer to [this](https://rentry.co/ezfg) for my special interests
+              cant link in colored text but refer to [this](https://rentry.co/ezfg) for my special interests also also also [look at my art pretty please](rentry.co/eesti) that rentry is wip it looks rlly bad rn im sorry
