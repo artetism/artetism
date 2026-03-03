@@ -8,7 +8,7 @@
  
 
 
-${\color{#efecec}{\textsf ⌒✧⌒}} \color{#eca0a0}{\textsf{arte}} \color{#efecec}{\textsf{it / its}} \color{#a465ab}{\textsf{16}}$\
+${\color{#efecec}{\textsf ⌒✧⌒}} \color{#eca0a0}{\textsf{arte}} \color{#efecec}{\textsf{it / its}} \color{#a465ab}{\textsf{17}}$\
 ${\color{#efecec}{\textsf ⊹}} \color{#a465ab}{\textsf{➸}} \color{#efecec}{\textsf{autistic}} \color{#eca0a0}{\textsf{himejoshi}} \color{#efecec}{\textsf{thing}}$\
 ${\color{#a465ab}{\textsf✿}} \color{#efecec}{\textsf{lesbian}} \color{#eca0a0}{\textsf{aroace}} \color{#efecec}{\textsf{agender}} \color{#a465ab}{\textsf{⚢}}$\
 $ {\color{#efecec}{\textsf i}} \color{#eca0a0}{\textsf{♡}} \color{#efecec}{\textsf{my special interests}}$
